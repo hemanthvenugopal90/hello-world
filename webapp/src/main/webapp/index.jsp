@@ -1,2 +1,2 @@
-<h1> NEVER GIVE UP! Just Keep Trying !!! </h1>
+<h1> Be Fearless! Be a Warrior!! </h1>
 
