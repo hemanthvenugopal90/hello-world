@@ -1,2 +1,2 @@
-<h1> Hello, Welcome to Valaxy Technologies !!! </h1>
+<h1> NEVER GIVE UP! Just Keep Trying !!! </h1>
 
